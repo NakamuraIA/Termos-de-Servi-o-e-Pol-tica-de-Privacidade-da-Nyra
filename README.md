@@ -1,0 +1,1 @@
+# Termos-de-Servi-o-e-Pol-tica-de-Privacidade-da-Nyra
